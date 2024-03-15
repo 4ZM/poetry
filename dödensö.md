@@ -1,50 +1,56 @@
-Dödens ö
+# Dödens ö
 
-(till Arnold Böcklin och Rachmaninov)
+![Böcklin](dödensö.jpg)
+_(Inspirerad av Arnold Böcklin och Sergej Rachmaninov)_ 
 
+\-
 
-Utan brådska sänker Kharon
+Utan någon brådska sänker Kharon  
 sina åror genom vattenspegeln.
 
-Solens sista strålar värmer ryggen,
-Blandar guld och karmosin
-med cypressens skyggsafir.
+Solens sista strålar värmer ryggen.  
+Vi ror till dödens ö.
 
-Vi ror mot dödens mörka ö.
+På stranden blandas guld och karmosin  
+med öns cypressers skyggade safir.
 
-Jag står i fören. Svept i linne,
-smord med opoponax och med myrra.
-Njutande en utsökt epilog.
+Jag står i fören, svept i linne,  
+smord med smidig olibanumolja,  
+njutande en utsökt epilog.
 
-<landstigning>
+Ingen hand har vidrört stenen, som  
+rullats undan och nu blottar graven.
 
-Ingen hand har vidrört stenen
-som rullats undan, blottat graven.
+Jag kallas till min dunkla katakomb,  
+till sömn på doft av skuggig sommar sten.
 
-Jag läggs till vila i den grunda katakomben,
-på doft av sommarsten.
-
-Jag andas ut med stängda ögon,
+Att blunda, andas ut i mörkret,  
 en sista gång och aldrig mer.
 
-Hineini Adonai!
+Hineini Adonai!  
 Adonai, Adonai ha-Aretz.
 
-Låt mörker komma, kom död och vila,
-låt tankar skingras och ta slut.
+Låt mörker komma. Kom död, kom vila.  
+Låt tankar skingras och ta slut.
 
-När solen sjunker under jorden
-har hela livet slutligen mätts ut.
+Så upphör soluret att visa tiden  
+och hela livet har med det mätts ut.
 
-[tystnad följer]
+\-
 
-Men allt blir inte alltid som man trott.
+Allt är tystnad. Allt är mörker.  
+Men allt är inte alltid som man trott.
 
-Någonstans i mörkret hörs...
-en flöjt? pianissimo adagio, knappt hörbar.
-Ett ljus har tänts i graven,
+Någonstans i mörkret hörs en...  
+flöjt? Pianissimo adagio.
+
+Knappt hörbar viskas andens melodi.  
+[det susar, lossnar ifrån kroppen]
+
+Ett litet ljus tänds upp i graven,  
 sprunget från sitt spruckna kärl.
 
-När solen stiger nästa morgon
-är min kropp allt jämnt i graven,
-men inte längre jag.
+När solen stiger nästa morgon  
+är min kropp allt jämnt kvar i graven,  
+men jag är inte längre där.
+
