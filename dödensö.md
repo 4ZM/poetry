@@ -15,14 +15,14 @@ På stranden blandas guld och karmosin
 med öns cypressers skyggade safir.
 
 Jag står i fören, svept i linne,  
-smord med smidig olibanumolja,  
+ren och smord med olibanumolja,  
 njutande en utsökt epilog.
 
 Ingen hand har vidrört stenen, som  
 rullats undan och nu blottar graven.
 
 Jag kallas till min dunkla katakomb,  
-till sömn på doft av skuggig sommar sten.
+till sömn på doft av skuggig sommarsten.
 
 Att blunda, andas ut i mörkret,  
 en sista gång och aldrig mer.
@@ -45,9 +45,9 @@ Någonstans i mörkret hörs en...
 flöjt? Pianissimo adagio.
 
 Knappt hörbar viskas andens melodi.  
-[det susar, lossnar ifrån kroppen]
+Det susar, något lossnar ifrån kroppen.
 
-Ett litet ljus tänds upp i graven,  
+Ett litet ljus som tänds i natten,  
 sprunget från sitt spruckna kärl.
 
 När solen stiger nästa morgon  
