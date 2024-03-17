@@ -1,6 +1,6 @@
 # Dödens ö
 
-![Böcklin](dödensö.jpg)
+![Dödens Ö - Böcklin](dödensö.jpg)
 _(Inspirerad av Arnold Böcklin och Sergej Rachmaninov)_ 
 
 \-
