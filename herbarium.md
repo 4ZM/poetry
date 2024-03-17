@@ -12,9 +12,9 @@ Eldboll
 Sodomsäpple  
 Nephrolepis exaltata  
 
-Pestnäbb  
+pestnäbb  
 Djävulsdruva  
-Purpurranka, dadelpalm  
+Purpurranka, Dadelpalm  
 
 Dolkört  
 hjärtat dunkar  
