@@ -1,11 +1,11 @@
 # Dödens ö
 
-![Dödens Ö - Böcklin](dödensö.jpg)
-_(Inspirerad av Arnold Böcklin och Sergej Rachmaninov)_
+![Dödens Ö - Böcklin](dödensö.jpg)  
+_(Inspirerad av Böcklin och Rachmaninov)_
 
 \-
 
-Utan någon brådska sänker Kharon  
+Utan brådska sänker Kharon  
 sina åror genom vattenspegeln.  
 
 Solens sista strålar värmer ryggen.  
@@ -14,8 +14,8 @@ Vi ror till dödens ö.
 På stranden blandas guld och karmosin  
 med öns cypressers skuggade safir.  
 
-Jag står i fören, svept i linne,  
-ren och smord med olibanumolja,  
+Jag står i fören, svept i linne.  
+Ren och smord med olibanumolja,  
 njutande en utsökt epilog.  
 
 Ingen hand har vidrört stenen, som  
