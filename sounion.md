@@ -1,6 +1,6 @@
 # Skymning över Sounion
 
-![Sounion](sounion.jpg)  
+![Sounion](sounion.jpg)
 
 \-
 
@@ -19,7 +19,7 @@ med svala fingrar havets rygg till sömns
 Hon sjunger tyst för spruckna pelartrummor  
 och bäddar ner sig själv i bergablock  
 
-Han minns när hon ran ut i Lauron  
+Han minns när hon rann ut i Lauron  
 och skördades och las på hög  
 och hur hon blev till vin och skepp och makt  
 Han hade glatt sig då, för länge sen.  
@@ -32,12 +32,12 @@ en segerkrans omkring hans tron
 Men nu har berget sinat  
 och månljuskalken druckits ur.  
 Kvar är endast silverskum på stranden  
-och hålorna och jordens djupa ärr.
+och hålorna och jordens djupa ärr.  
 
 Med en rysning dröjer blicken, vid  
 besökscentrets återvinningskärl för plastbestick  
 Han åldras hundra år i deras åsyn  
-varje ensam natt i Sounion.
+varje ensam natt i Sounion.  
 
 Han suckar, lutar ansiktet i handen.  
 En krabba kryper ur hans skägg.  
