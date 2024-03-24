@@ -4,7 +4,6 @@
 # Dödens ö
 
 ![Dödens Ö - Böcklin](dödensö.jpg)  
-_(Inspirerad av Böcklin och Rachmaninov)_
 
 \-
 
