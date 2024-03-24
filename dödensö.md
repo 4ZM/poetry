@@ -24,8 +24,8 @@ njutande en utsökt epilog.
 Ingen hand har vidrört stenen, som  
 rullats undan och nu blottar graven.  
 
-Jag kallas till min dunkla katakomb,  
-till sömn på doft av skuggig sommarsten.  
+Kallad till min sömn i nekropolen,  
+till min katakomb i klippans vägg.
 
 Att blunda, andas ut i mörkret,  
 en sista gång och aldrig mer.  
@@ -50,7 +50,7 @@ flöjt? Pianissimo adagio.
 Knappt hörbar viskas andens melodi.  
 Det susar, något lossnar ifrån kroppen.  
 
-Ett litet ljus som tänds i natten,  
+Ett litet ljus tänds upp i natten,  
 sprunget från sitt spruckna kärl.  
 
 När solen stiger nästa morgon  
