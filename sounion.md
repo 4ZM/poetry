@@ -48,5 +48,5 @@ hans tredje trötta ben till stöd
 
 Hur längesedan har det varit,  
 han tänt en stjärnbild som ett pris?  
-Till vilken nytta? ingen höjer längre blicken  
+Till vilken nytta? ingen höjer blicken  
 eller sänker böner ner till havets gud.  
