@@ -1,6 +1,6 @@
 [← tillbaka](README.md)  
 
-# Skymning över Sounion
+# Sounion
 
 ![Sounion](sounion.jpg)  
 
