@@ -24,17 +24,15 @@ voces magicae
 andens astronaut  
 
 Legein! Säg namnen!  
-ωαωι Tetragramaton  
-
-α/ε̣ηιουω  
-Iadetophōth  
-Satraperkmēph  
+Tetragramaton  
+Ia-de-to-phō-th  
+Sa-tra-per-kmē-ph  
 Emmanuēl
 
 Nomina barbara  
 Ändra inte tecknen  
 repor på en blodsten  
-Ordets liv
+ordets liv
 
 
 The Magic ‘Crucifixion Gem’

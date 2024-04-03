@@ -11,11 +11,6 @@
 [Sounion](sounion.md)  
 [Self](identity.md)  
 
-### Ofärdigt
-
-[Blodsten](blodsten.md)  
-[Saul](saul.md)  
-
 
 ---
 
