@@ -4,6 +4,7 @@
 # Dödens ö
 
 ![Dödens Ö - Böcklin](dödensö.jpg)  
+_Arnold Böcklin, Die Toteninsel (1880)_
 
 \-
 

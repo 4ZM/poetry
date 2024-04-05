@@ -3,6 +3,7 @@
 # Jakobs Höft
 
 ![Jakob](jakob.jpg)  
+_Eugene Delacroix, Jacob wrestling with the angel sketch (1850)_
 
 \-
 
