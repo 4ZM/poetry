@@ -3,8 +3,7 @@
 # Blodsten
 
 ![blodsten](blodsten.jpg)  
-_[ΒΜ objekt 1986,0501.1](https://www.britishmuseum.org/collection/object/H_1986-0501-1)
-Bild: © The Trustees of the British Museum CC BY-NC-SA 4.0_
+_Objekt BM 1986,0501.1 © The Trustees of the British Museum CC BY-NC-SA 4.0_
 
 \-
 
@@ -20,21 +19,15 @@ smord och övergiven
 
 Stig i sången!  
 Sången av vokaler  
-voces magicae    
-andens astronaut  
+sjung! ad astra  
+voces magicae  
 
 Legein! Säg namnen!  
+Ia-de-to-phōth  
 Tetragramaton  
-Ia-de-to-phō-th  
-Sa-tra-per-kmē-ph  
-Emmanuēl
+och Immanu'el
 
-Nomina barbara  
 Ändra inte tecknen  
+Sa-tra-per-kmēph  
 repor på en blodsten  
-ordets liv
-
-
-The Magic ‘Crucifixion Gem’
-in the British Museum
-Roy D. Kotansky
+Ordets liv
