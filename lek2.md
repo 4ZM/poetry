@@ -7,10 +7,10 @@
 \-
 
 Jag leker en lek  
-en slösaktig lek
-leken är att slösa
+en slösaktig lek  
+leken är att slösa  
 
-att inte skriva ner
-strofer eller ord
-dikta till mig sjäv
-till ögonblicket
+att inte skriva ner  
+strofer eller ord  
+dikta till mig sjäv  
+

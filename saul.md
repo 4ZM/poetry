@@ -17,9 +17,12 @@ Gud talar inte längre
 till honom  
 
 Harmen brinner i hans ögon  
+
 ..  
 
 Urim glöder inte   
 Thumin glöder inte    
 Gud var inte längre  
 med honom
+
+

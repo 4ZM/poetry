@@ -8,7 +8,8 @@
 
 Jag leker en lek  
 luktleken  
-Jag luktar på människor  
+Leken är att lukta  
+på människor  
 
 Inte nära (creepy)  
 Utan lite på håll  
@@ -35,7 +36,6 @@ Hash
 Fattiga luktar ofta gott  
 förutom de jättefattiga  
 de luktar illa  
-
 
 Vissa dagar tycker jag om alla lukter                                         
 Tycker att de är  spännande                                                      
