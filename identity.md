@@ -15,7 +15,7 @@ But I am he
 Tomorrow and thereafter  
 
 Cell by cell replaced  
-Yet I remain  
+yet I remain  
 Tomorrow and thereafter  
 
 Will I persist?  

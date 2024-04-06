@@ -7,21 +7,21 @@
 \-
 
 Modernity  
-Dreams of drowning peas  
+Dreams of drowned peas  
 in tin cans  
 Toxic rationalism  
 (Cybernetic) control pornography  
-This too has passed away
+This, too, has passed away
 
 Post-Modernity  
-Dreams of deconstructed food  
+Dreams of deconstructed dishes  
 on black plates  
 Toxic relativism  
 (Continental) critical pornography  
-This too has passed away
+This, too, has passed away
 
 Present  
-Dreams of depicted food  
+Dreams of depicting food  
 and Mukbang  
 Toxic positivism  
 (Mindfull) presense pornography  
@@ -31,11 +31,11 @@ Post-Present
 Whatever the dream  
 Whatever the poison  
 Whatever the pleasure  
-That too shall pass away
+That, too, shall pass away
 
 Modernity  
 Post-modernity  
 Present  
 Post-Present  
 Remember  
-The sufi saying
+

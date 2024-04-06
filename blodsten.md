@@ -18,8 +18,8 @@ det lilla lammet bräker
 smord och övergiven  
 
 Stig i sången!  
-Sången av vokaler  
-sjung! ad astra  
+sången av vokaler  
+Sjung! ad astra  
 voces magicae  
 
 Legein! Säg namnen!  

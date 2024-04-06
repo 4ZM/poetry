@@ -13,12 +13,8 @@ när jag vaknar?
 
 Argumenterar  
 löser problem  
-gråter  
+lider  
 
 Jag fann dig  
 mitt i en mening  
 Vem är du?  
-
-Som går i takt på dagen  
-min skugga?  
-Dina steg veckte mig
