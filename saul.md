@@ -9,7 +9,7 @@
 Saul viskade till stenen  
 svepte den i andens dräkt  
 blåste självande sin önskan  
-» Hör mig Du som sjänker råd! «  
+» Hör mig Du som skänker råd! «  
 
 Urim svarar inte  
 Thumin svarar inte  

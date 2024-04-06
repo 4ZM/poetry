@@ -31,7 +31,7 @@ vinden spinner molnet till spiraler
 
 Stönar. Virvelpelare som dansar.  
 
-De tömmer ut sig själva i varnadra  
+De tömmer ut sig själva i varandra  
 Jakob sliter i den andres kött.  
 Ängeln vidrör höftens spända sena.  
 

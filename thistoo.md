@@ -24,7 +24,7 @@ Present
 Dreams of depicting food  
 and Mukbang  
 Toxic positivism  
-(Mindfull) presense pornography  
+(Mindful) presence pornography  
 And this, too, shall pass away
 
 Post-Present  
