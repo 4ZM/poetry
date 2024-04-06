@@ -1,8 +1,8 @@
 [← tillbaka](README.md)  
 
-# Drömgestalt
+# Skugga
 
-![drömgestalt](skugga.jpg)  
+![skugga](skugga.jpg)  
 _James Smetham, The Dream (1856)_
 
 \-

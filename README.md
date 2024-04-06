@@ -11,7 +11,8 @@
 [Sounion](sounion.md)  
 [Self](identity.md)  
 [Blodsten](blodsten.md)  
-
+[Skugga](skugga.md)  
+[Sufi Sayings](thistoo.md)
 
 ---
 

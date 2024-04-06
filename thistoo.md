@@ -11,7 +11,7 @@ Dreams of drowned peas
 in tin cans  
 Toxic rationalism  
 (Cybernetic) control pornography  
-This, too, has passed away
+This, too, did pass away
 
 Post-Modernity  
 Dreams of deconstructed dishes  
@@ -31,7 +31,7 @@ Post-Present
 Whatever the dream  
 Whatever the poison  
 Whatever the pleasure  
-That, too, shall pass away
+That, too, will pass away
 
 Modernity  
 Post-modernity  
