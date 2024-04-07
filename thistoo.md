@@ -33,9 +33,6 @@ Whatever the poison
 Whatever the pleasure  
 That, too, will pass away
 
-Modernity  
-Post-modernity  
-Present  
-Post-Present  
 Remember  
-
+Always  
+Remember  

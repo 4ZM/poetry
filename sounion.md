@@ -17,12 +17,12 @@ mot det gamla templet styrde stegen
 mot en ensam, bortglömd konungs tron  
 
 Bakom honom smeker månens  
-svala fingrar havets rygg till sömns  
+svala fingrar havets rygg till sömn  
 Hon sjunger tyst för spruckna pelartrummor  
-och bäddar ner sig själv i rymdens lugn  
+och bäddar ner sig själv i rymdens famn  
 
 Han minns när hon rann ut i Lavrion  
-och skördades och las på hög  
+och grävdes upp och las på hög  
 och hur hon blev till vin och skepp och makt.  
 Han hade glatt sig då, för länge sen.  
 

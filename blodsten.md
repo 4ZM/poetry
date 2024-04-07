@@ -8,26 +8,26 @@ _Objekt BM 1986,0501.1 © The Trustees of the British Museum CC BY-NC-SA 4.0_
 \-
 
 Sonens död  
-naken på en blodsten  
-ordet korsfäst  
-jaspisrunor glöder
+Naken på en blodsten  
+Ordet korsfäst  
+Jaspisrunor glöder
 
 Repen runt hans armar  
 och korsets timmer  
-det lilla lammet bräker  
+Det lilla lammet bräker  
 smord och övergiven  
 
 Stig i sången!  
-sången av vokaler  
-Sjung! ad astra  
-voces magicae  
+Sången av vokaler  
+Sjung! Ad astra  
+Voces magicae  
 
-Legein! Säg namnen!  
+Legein! Säg orden!  
 Ia-de-to-phōth  
-Tetragramaton  
-och Immanu'el
+Tetragrammaton  
+och Immanuel
 
-Ändra inte tecknen  
+Ändra inte namnen  
 Sa-tra-per-kmēph  
-repor på en blodsten  
-Ordets liv
+Repor på en blodsten  
+blir Ordets liv

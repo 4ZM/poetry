@@ -8,18 +8,18 @@
 
 Mandel  
 Jungfruöga  
-blommande Ballongört  
+Blommande ballongört  
 
 Eldboll  
 Sodomsäpple  
 Nephrolepis exaltata  
 
-pestnäbb  
+Pestnäbb  
 Djävulsdruva  
-Purpurranka, Dadelpalm  
+Purpurranka, dadelpalm  
 
 Dolkört  
-hjärtat dunkar  
+Hjärtat dunkar  
 Digitalis purpurea  
 
 Fikus  
@@ -28,17 +28,13 @@ Stryparfikus
 Fikus religiosa  
 
 Apsvans  
-Creeping Devil  
+Creeping devil  
 Blågrön djävulstunga  
 
-drunknad  
-fenor  
-Tuvad fiskstjärtspalm
-
 Flaskljus  
-strålar  
+Strålar  
 Pärlemorbegonia  
 
-tårar  
+Tårar  
 Lila zuluaster  
-morgondagg i Ökensked  
+Morgondagg i ökensked  

@@ -3,6 +3,7 @@
 # Self
 
 ![SecretDouble](identity.jpeg)  
+_René Magritte (1927)_
 
 \-
 

@@ -1,6 +1,6 @@
 [← tillbaka](README.md)  
 
-# Skugga
+# Sov min skugga
 
 ![skugga](skugga.jpg)  
 _James Smetham, The Dream (1856)_
@@ -12,9 +12,9 @@ mitt i natten
 när jag vaknar?  
 
 Argumenterar  
-löser problem  
-lider  
+Löser problem  
+Lider  
 
 Jag fann dig  
 mitt i en mening  
-Vem är du?  
+Kan du inte sova?
