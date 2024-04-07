@@ -1,14 +1,19 @@
 # Poem
 
 ![MaxErnst](readme.jpg)  
+_Kronologi över mitt diktande_
 
+## 2024
+### Vinter
 
-### 2024
-
+[Sounion](sounion.md)  
 [Herbarium](herbarium.md)  
 [Jakobs Höft](jacob.md)  
 [Dödens ö](dödensö.md)  
-[Sounion](sounion.md)  
+
+
+### Vår
+
 [Self](identity.md)  
 [Blodsten](blodsten.md)  
 [Skugga](skugga.md)  
