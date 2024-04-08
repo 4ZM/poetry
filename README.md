@@ -1,7 +1,7 @@
 # Poem
 
 ![MaxErnst](readme.jpg)  
-_Kronologi över mitt diktande_
+_Kronologi över mitt diktande. Bild: Max Ernst (1935)_
 
 ## 2024
 ### Vinter
@@ -17,7 +17,8 @@ _Kronologi över mitt diktande_
 [Self](identity.md)  
 [Blodsten](blodsten.md)  
 [Skugga](skugga.md)  
-[Sufi Sayings](thistoo.md)
+[Sufi Sayings](thistoo.md)  
+[Lek I-III](lek123.md)
 
 ---
 

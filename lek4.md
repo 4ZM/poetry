@@ -8,48 +8,48 @@
 
 Jag leker en lek  
 luktleken  
-Leken är att lukta  
-på människor  
+Leken är att lukta på   
+människor jag möter  
 
-Inte nära (creepy)  
+Inte allt för nära (creepy)  
 Utan lite på håll  
 När de går förbi  
 Eller står framför  
 i rulltrappan  
 
-Vaniljparfym  
-Dyr parfym  
-Stekos  
-Cigarett  
-Kiss  
-Nagchampa  
-Patchouli  
-Sportsvett  
-sursvett  
-otvättat hår  
-läder  
-sandelträ  
-Sprit  
-Hash  
-Öl  
+Artonårig kille luktar  
+vass vaniljparfym  
+Lite äldre kille luktar  
+sandelträ och läder   
+
+Artonårig tjej luktar  
+också vaniljparfym(?!)  
+Alternativ tjej luktar  
+patchouli och nag champa 
+
+Mellanchefen luktar  
+sportsvett eller bäbisspya  
+Advokaten luktar  
+onaturligt lite  
+
+Han med alla påsar luktar  
+öl och svett och kiss  
+Gamla gubben luktar  
+bara svett och kiss  
+
+Hon i receptionen luktar  
+smala cigarett  
+Han från grillen luktar  
+stekos och frityr  
 
 Fattiga luktar ofta gott  
 förutom de jättefattiga  
 de luktar illa  
 
-Vissa dagar tycker jag om alla lukter                                         
-Tycker att de är  spännande                                                      
-Andra dagar ryggar jag tillbaka  
-                                         
-Vissa har ingen lukt  
-Inte på avstånd  
-det känns snålt  
-Jag undrar hur deras hud luktar  
-
-Hur luktar barn?  
-Alltså utan godis  
-mat, snor, smuts.
-Alltså andras barn  
-
-Farmor luktade som en ros (dvs damparfym) vid högtider  
+Min farmor luktade  
+som en ros (dvs damparfym)  
 sedan som demensboendet  
+
+Jag önskar att jag luktade  
+
+som en vissen blomma  

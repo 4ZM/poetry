@@ -3,6 +3,7 @@
 # Herbarium
 
 ![Sodomsäpple](herbarium.png)  
+Bild: L. & A. Stridvall (CC BY 3.0)  
 
 \-
 

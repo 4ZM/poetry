@@ -3,7 +3,7 @@
 # Blodsten
 
 ![blodsten](blodsten.jpg)  
-_Objekt BM 1986,0501.1 © The Trustees of the British Museum CC BY-NC-SA 4.0_
+_Bild: BM 1986,0501.1 Trustees of the British Museum (CC BY-NC-SA 4.0)_
 
 \-
 

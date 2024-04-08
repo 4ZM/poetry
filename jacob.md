@@ -3,7 +3,7 @@
 # Jakobs Höft
 
 ![Jakob](jakob.jpg)  
-_Eugene Delacroix, Skiss för Jacob brottas med ängeln (1850), q.v. Genesis 32:22-31_
+_Bild: Eugene Delacroix, Skiss för Jacob brottas med ängeln (1850), q.v. Genesis 32:22-31_
 
 \-
 

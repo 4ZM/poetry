@@ -3,6 +3,7 @@
 # Saul
 
 ![Saul](saul.jpg)  
+_Bild: Rembrandt, detail (1651-8)_
 
 \-
 

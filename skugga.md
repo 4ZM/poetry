@@ -1,9 +1,9 @@
 [← tillbaka](README.md)  
 
-# Sov min skugga
+# Sov skugga, sov
 
 ![skugga](skugga.jpg)  
-_James Smetham, The Dream (1856)_
+_Bild: James Smetham, The Dream (1856)_
 
 \-
 
