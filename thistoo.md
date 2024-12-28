@@ -23,7 +23,7 @@ This, too, has passed away
 Present  
 Dreams of depicting food  
 and Mukbang  
-Toxic positivism  
+Toxic positivity  
 (Mindful) presence pornography  
 And this, too, shall pass away
 
